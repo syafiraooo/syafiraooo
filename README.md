@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @syafiraooo
+- 👀 I'm interested in anything dark
+- 🌱 I'm currently learning everything there is to learn
+- 💞️ I want to collaborate in building a better world
+- ⚡ Fun fact: I'm a nobody
